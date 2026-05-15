@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered bitmex trading bot Plugin | slippage-control + leverage-management, the #1 bitmex trading bot. Includes slippage-control and
 
 
 
